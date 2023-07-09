@@ -2,4 +2,4 @@ Hello there, unfortunately i decided to abandon this account. I will be unable t
 
 You can subscribe to my YouTube channel instead, or follow me on Twitter. <br/>
 <b>YouTube</b>: https://www.youtube.com/channel/UCA8pgEXceL3D4SL5Ov696ZQ <br/>
-<b>Twitter</b>: https://twitter.com/JETheWindowsFan
+<b>Twitter</b>: (dead)
